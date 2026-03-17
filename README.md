@@ -1,4 +1,10 @@
 Nombres: 
 
 🐵 Andrés Sánchez (Sharum)
-Luchini vision
+
+
+
+
+
+
+Luis Gonzalez
