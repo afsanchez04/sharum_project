@@ -1,12 +1,26 @@
 Nombres: 
-Mateo
+Mateo (Acodezón)
 
 
 🐵 Andrés Sánchez (Sharum)
-   
+Camilo
+Carolina
 
-🐵 Justin Tobon
 
 🐵 Joseph López (SONARTE)
 
 Daniel Hincapie (TRAMA VORTEX)
+
+
+
+maria fernanda (sharum)
+Jimena
+
+🐵 Andrés Sánchez (Sharum)
+
+
+
+
+
+
+Luis Gonzalez
