@@ -3,9 +3,9 @@ Mateo (Acodezón)
 
 
 🐵 Andrés Sánchez (Sharum)
-Camilo
+Camilo (helikon)
 Carolina
-
+Justin Tobon
 
 
 
@@ -20,4 +20,9 @@ Jimena
 Juan Quintero (Helenia)
 
 
+
+
+
+🦈 Juan Camilo Lòpez (trama vortex)
 Luis Gonzalez
+
