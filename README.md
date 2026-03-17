@@ -1,4 +1,16 @@
 Nombres: 
+Mateo (Acodezón)
+
+
+🐵 Andrés Sánchez (Sharum)
+Carolina
+
+
+
+
+
+maria fernanda (sharum)
+Jimena
 
 🐵 Andrés Sánchez (Sharum)
 
@@ -10,4 +22,6 @@ Nombres:
 
 
 
-🦈 Juan Camilo Lòpez 
+🦈 Juan Camilo Lòpez (trama vortex)
+Luis Gonzalez
+
